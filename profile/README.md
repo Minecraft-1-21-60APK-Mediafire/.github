@@ -4,7 +4,7 @@
 Minecraft sigue evolucionando con cada nueva versión, y la actualización **Minecraft 1.21.60 APK** trae consigo mejoras, correcciones y nuevas funciones que elevan la experiencia de juego. Si eres fanático de la exploración, construcción y supervivencia, esta actualización te permitirá disfrutar de un mundo más dinámico y lleno de posibilidades.
 En este artículo, te explicamos cómo descargar Minecraft 1.21.60 APK desde **Mediafire**, qué novedades incluye esta versión y por qué deberías probarla.
 
-Descargar: [Minecraft 1.21.60 APK Mediafire](https://minecraft.pt.coimobile.io/)
+Descargar: [Minecraft 1.21.60 APK Mediafire](https://minecraft.es.coimobile.io/)
 ---
 
 ## **Novedades en Minecraft 1.21.60 APK**
